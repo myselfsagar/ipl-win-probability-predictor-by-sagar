@@ -10,3 +10,9 @@ Sample of the project:
 
 https://user-images.githubusercontent.com/89530216/170833842-cc7a0bc4-1cc2-4f8d-8c01-56ed95d3b687.mp4
 
+You can download the zip file and extract it o get all the codes.
+
+To get report(Thesis) and PPT for college work you can request for it personally.
+
+Thanks!!!
+
